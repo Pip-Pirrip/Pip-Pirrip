@@ -26,7 +26,7 @@ image
 
 <img width="1536" height="864" alt="image" src="https://github.com/user-attachments/assets/82d340e5-2e23-469d-ae58-d0a366348595" />
 
-ᴅᴏɴᴛ ɪɴt ɪꜰ-
+ᴅᴏɴᴛ ɪɴt - I may block you for these same reasons - I block and hide freely
 
 ʏᴏᴜ ᴀʀᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴡɪᴛʜ ᴍɪɴᴏʀꜱ
 
