@@ -1,46 +1,16 @@
 -ˏˋ⋆ ᴡ ᴇ ʟ ᴄ ᴏ ᴍ ᴇ ⋆ˊˎ-
 
-<img width="433" height="577" alt="image" src="https://github.com/user-attachments/assets/c948385c-8047-48b9-954f-73d4cc3666f5" />
+ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
 
+This is the Github account for my Pony Town, Most and/or all of my ponies shall be here.
 
-‎‧₊˚✧ʜᴇʟʟᴏ!✧˚₊‧
+I block and hide freely // Please note that I may block you when there's 
+nothing truly against you.
 
-ᴛʜɪꜱ ɪꜱ ᴍʏ ꜱɪʟʟʏ ʟɪᴛᴛʟᴇ ᴘᴏɴʏ ᴛᴏᴡɴ ɢɪᴛʜᴜʙ, ɪᴛ ʜᴀꜱ ᴀʟʟ ᴏꜰ ᴍʏ ᴘᴏɴɪᴇꜱ ꜱᴀᴠᴇᴅ ᴛᴏ ɪᴛ (ᴏʀ ꜱʜᴏᴜʟᴅ ɪᴅᴋ ᴡʜʏ ɪᴛ ᴡᴏᴜʟᴅɴᴛ xᴘ) ɪᴍ ᴘʀᴏʙᴀʙʟʏ ᴀꜰᴋ ꜱᴏ ɪᴍ ʀᴇᴀʟʟʏ ꜱᴏʀʀʏ ɪꜰ ɪ ꜰᴏʀɢᴇᴛ ᴛᴏ ʀᴇᴘʟʏ!
+  Reasons I may block you ''   DNI
+              ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 
 
-ꜰᴀɴᴅᴏᴍꜱ ɪ ʜᴀᴠᴇ ᴄᴏꜱᴘʟᴀʏꜱ ꜰᴏʀ-
-
-ᴏɴᴇ ᴘɪᴇᴄᴇ
-
-ᴍʜᴀ
-
-ᴇɴᴀ
-
-ɢᴇɴꜱʜɪɴ ɪᴍᴘᴀᴄᴛ
-
-ᴄʀᴋ
-
-ꜱᴍɢ4
-
-image
-ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ɪɴᴄ ᴊᴜꜱᴛ ᴋɴᴏᴡ ɪᴍ ᴀ ʟɪᴛᴛʟᴇ ꜱʜʏ ꜱᴏ ʏᴏᴜ ᴍɪɢʜᴛ ʜᴀᴠᴇ ᴛᴏ ɪɴᴛ ꜰɪʀꜱᴛ! ɪ ᴀʟʟᴏᴡ ᴄ + ʜ, ʏᴏᴜ ᴄᴀɴ ᴄᴏᴠᴇʀ ᴍᴇ ᴀ ʙɪᴛ ʙᴜᴛ ᴍᴀᴋᴇ ꜱᴜʀᴇ ɪᴍ ꜱᴛɪʟʟ ᴠɪꜱɪʙʟᴇ!
-
-<img width="1536" height="864" alt="image" src="https://github.com/user-attachments/assets/82d340e5-2e23-469d-ae58-d0a366348595" />
-
-ᴅᴏɴᴛ ɪɴt - I may block you for these same reasons - I block and hide freely
-
-ʏᴏᴜ ᴀʀᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴡɪᴛʜ ᴍɪɴᴏʀꜱ
-
-ʏᴏᴜ ᴀʀᴇ ᴀ ᴘʀᴇᴅᴀᴛᴏʀ ᴏʀ ᴀ ᴘ3ᴅ0
-
-ʜᴀᴛᴇ ᴘᴇʀꜰᴇᴄᴛʟʏ ꜰɪɴᴇ ꜱʜɪᴘꜱ ʙᴇᴄᴀᴜꜱᴇ ᴛʜᴇʏ ᴀʀᴇ "ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ"
-
-ʏᴏᴜ ᴀʀᴇ ᴀ ᴘʀᴏsʜɪᴘᴘᴇʀ
-
-ʏᴏᴜ ᴀʀᴇ ɢᴏɪɴɢ ᴛᴏ ꜱᴛᴀʀᴛ ᴅʀᴀᴍᴀ
-
-ʀᴀᴄɪꜱᴛ, ꜱᴇxɪꜱᴛ, ʜᴏᴍᴏᴘʜᴏʙɪᴄ ᴏʀ ᴛʀᴀɴꜱᴘʜᴏʙɪᴄ
-
-ʜᴀᴛᴇ ᴏɴ ꜰᴜʀʀɪᴇꜱ, ᴛʜᴇʀɪᴀɴꜱ, ᴏᴛʜᴇʀᴋɪɴ, ᴇᴛᴄ.
-
-<img width="470" height="264" alt="system-center-configuration-manager-470x264" src="https://github.com/user-attachments/assets/96efdd2b-d5c9-4b83-a7ee-85d5bbc4487c" />
-
+       ☆ You have a tendency to cause drama
+       ☆ Hate on the LGBTQ+, Therians, Otherkins, Fictokins, Furries, POC , Alt people, Weird kids  '' Etc. : Im apart of many of these groups myself
+       ☆ you are a PDF.file or are acting inappropriate to me or other minors
+       
