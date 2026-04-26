@@ -2,7 +2,6 @@
 
 ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
 
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=10&color=E20000&width=435&lines=%2F%2F+Good+day%2C+Damien.+;''+My+name+is+Phillip.+%F0%9D%84%9E%E2%A8%BE%F0%93%8D%A2%D6%B4%E0%BB%8B;But+everyone+calls+me+Pip+-;-+Because+they+hate+me.+%E2%8B%AE+%E2%8C%97+%E2%94%86)](https://git.io/typing-svg)
 
 This is the Github account for my Pony Town, Most and/or all of my ponies shall be here.
