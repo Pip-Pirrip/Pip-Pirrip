@@ -1,4 +1,4 @@
--ˏˋ⋆ ᴡ ᴇ ʟ ᴄ ᴏ ᴍ ᴇ ⋆ˊˎ-
+🍮🥄 ˚₊‧ ᴡ ᴇ ʟ ᴄ ᴏ ᴍ ᴇ ˙⋆✮
 
 ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
 
@@ -17,3 +17,4 @@ Reasons I may block you ''   DNI
 
 ☆ you are a PDF.file or are acting inappropriate to me or other minors [You may also not interact if you are simply umcomfortable with minors]
        
+꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
