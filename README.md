@@ -23,7 +23,8 @@ Reasons I may block you ''   DNI
        
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
-<img width="100" height="56" alt="17772650280768621872514024346340" src="https://github.com/user-attachments/assets/32b517e4-f367-4823-b4e9-4b81655337b8" />
+<img width="100" height="56" alt="17772650280768621872514024346340" src="https://github.com/user-attachments/assets/32b517e4-f367-4823-b4e9-4b81655337b8" /> <img width="99" height="55" alt="17772651071421492894818866118754" src="https://github.com/user-attachments/assets/ef7e8073-2b57-4637-870f-999a9ee291ea" />
+
 
 
 
