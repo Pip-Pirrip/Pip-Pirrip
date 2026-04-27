@@ -1,6 +1,3 @@
-<img width="386" height="56" alt="17772651773651123246336233105979" src="https://github.com/user-attachments/assets/efea94a4-62c7-41a3-b029-18d4ca571307" />
-
-
 🍮🥄 ˚₊‧ ᴡ ᴇ ʟ ᴄ ᴏ ᴍ ᴇ ˙⋆✮
 
 ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
