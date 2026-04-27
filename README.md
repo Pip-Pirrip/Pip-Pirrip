@@ -18,6 +18,8 @@ Reasons I may block you ''   DNI
 ☆ Hate on the LGBTQ+, Therians, Otherkins, Fictokins, Furries, POC // your racist , Alt people, Weird kids  '' Etc. : Im apart of many of these groups myself
 
 ☆ you are a PDF.file or are acting inappropriate to me or other minors [You may also not interact if you are simply umcomfortable with minors]
+
+![](https://komarev.com/ghpvc/?username=Pip-Pirrip)
        
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
