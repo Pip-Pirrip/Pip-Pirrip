@@ -19,6 +19,8 @@ Reasons I may block you ''   DNI
 
 ☆ you are a PDF.file or are acting inappropriate to me or other minors [You may also not interact if you are simply umcomfortable with minors]
 
+☆ Do something that would upset me in source (?) 
+
 ![](https://komarev.com/ghpvc/?username=Pip-Pirrip&label=GOOD+FELLOWS)
        
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
