@@ -21,6 +21,8 @@ Reasons I may block you ''   DNI
 
 ☆ Do something that would upset me in source (?) 
 
+This is mostly basic DNI criteria...
+
 ![](https://komarev.com/ghpvc/?username=Pip-Pirrip&label=GOOD+FELLOWS)
        
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
